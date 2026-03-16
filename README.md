@@ -105,7 +105,6 @@ Through this training program, I improved:
 
 **Yuvaraj P**  
 Computer Science and Engineering Student  
-Anna University
 
 ---
 
